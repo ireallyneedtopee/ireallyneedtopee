@@ -1,0 +1,5 @@
+- ⚝: astrid/eryn.
+- 𖤐: fav things ; rdr, bbm , nirvana.
+- ⚝: she/they.
+- 𖤐: im a lesbian !!
+- ⚝: nev smells :/
